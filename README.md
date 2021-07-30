@@ -1,0 +1,1 @@
+A note about zipties, they're great at tying things up. If one uses them outside then the black uv-stabilized plastic ones are preferred. The white ones will become brittle and crack after less than a year in the sun. For high heat, stainless steel zipties are a good choice, such as for affixing exhaust header wrap.
